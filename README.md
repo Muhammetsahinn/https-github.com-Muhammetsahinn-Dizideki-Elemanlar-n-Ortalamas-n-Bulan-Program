@@ -1,0 +1,1 @@
+# https-github.com-Muhammetsahinn-Dizideki-Elemanlar-n-Ortalamas-n-Bulan-Program
